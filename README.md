@@ -10,3 +10,8 @@ LA FAMILIA CHILENA V2.0 COMO HACERLES LA PEGA ### JUGAR ES MI DERECHO, MI MUÑEC
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/PXrWKfRM/00-IMG-20210402-133322-ALAN-ALDO-NUNEZ-DALLETO-piaureo-com-aiaureo-com-diaureo-com-fechas-andnitro.jpg)
 
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/d3Ck7ft5/00-01-MAGEN-29-01-2018-20180129-145946-claudia-munoz-valenz.png)
+
+
+Audio reunion antes desl comienzo El acoso laboral, que se entiende como toda conducta que constituya agresión u hostigamiento ejercida por el empleador o por uno o más trabajadores, en contra de otro u otros trabajadores.
+
+https://mega.nz/file/Sh5BEaAC#rJjfI3MPJ08HnvIYu4wOs2WsJEcBFGWXiiO14ZecJ9Q
